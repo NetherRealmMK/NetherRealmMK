@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on Web, AI, Game and other projects
 - 📫 How to reach me: Instagram @ryunihon
 - ⚡ Fun fact: Croissants are originally from Austria and called Kipferl. 
+- 📍 From: Germany, currently living in Japan.
